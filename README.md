@@ -9,7 +9,7 @@
 
  - https://www.1620.top
 # 专业版源码地址
- - https://zibovip.top/archives/2652
+ - https://zibovip.top/2652.html
 
 ## 更新记录
 
